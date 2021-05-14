@@ -3,11 +3,11 @@
 # Who is she? 
 
 
-I’m interested in tecnology for environmental and social good. 
+I’m interested in tecnology for environmental and social good. Let's talk about the issues!
  
 I’m currently learning how to de-stress and be in the moment. 
  
-I enjoy spending time with friends, reading, being a mom of 2, and making new things.
+I enjoy spending time with friends, being a mom of 2 (Luna->🐱and Bebs->🐶), reading, and making new things. 
  
  
  # What's she up to? 
@@ -24,7 +24,7 @@ Catch me trying a new boba place
 Searching for a Summer 2021 internship in software development, data science/ analysitcs, environmental org, or any creative field. 
 
 
-📫 Call me, beep me if you wanna reach me
+📫 Let's connect: 
 
 Email: vanessalgadoz@gmail.com or check out my website: TBA
 
