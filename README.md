@@ -3,7 +3,7 @@
 # Who is she? 
 
 
-I’m interested in tecnology for environmental and social good. Let's talk about the issues!
+I’m interested in tecnology for environmental and social good. Let's make this world a better place!
  
 I’m currently learning how to de-stress and be in the moment. 
  
