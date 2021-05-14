@@ -12,11 +12,11 @@ I enjoy spending time with friends, reading, being a mom of 2, and making new th
  
  # What's she up to? 
  
-Current projects: planning a local succulent business and Plant Journal App. 
+Current projects: planning a local succulent business and Plant Journal App
  
-Embarking on journey to run outdoors and rock climb more. 
+Embarking on journey to run outdoors and rock climb more
 
-Catch me at the trying a new boba place 
+Catch me trying a new boba place 
 
 # Let's get down to business
 
