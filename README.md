@@ -3,11 +3,9 @@
 # Who is she? 
 
 
-I’m interested in tecnology for environmental and social good. Let's make this world a better place!
+I’m interested in creating technology for environmental and social good. Let's make this world a better place!
  
-I’m currently learning how to de-stress and be in the moment. 
- 
-I enjoy spending time with friends, being a mom of 2 (Luna->🐱and Bebs->🐶), reading, and making new things. 
+I enjoy spending time with friends, being a mom of 2 (Luna->🐱and Bebs->🐶), reading, and rock climbing. 
  
  
  # What's she up to? 
