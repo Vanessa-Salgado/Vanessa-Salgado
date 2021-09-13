@@ -19,9 +19,6 @@ Catch me trying a new boba place
 # Let's get down to business
 
 
-Searching for a Summer 2021 internship in software development, data science/ analytics, environmental org, or any creative field. 
-
-
 📫 Let's connect: 
 
 Email: vanessalgadoz@gmail.com or check out my website: TBA
