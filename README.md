@@ -5,16 +5,18 @@
 
 I’m interested in creating technology for environmental and social good. Let's make this world a better place!
  
-I enjoy spending time with friends, being a mom of 2 (Luna->🐱and Bebs->🐶), reading, and rock climbing. 
+I enjoy spending time with friends, being a mom of 2 (🐱->Luna and 🐶->Bebs), reading, and rock climbing. 
  
  
  # What's she up to? 
  
-Current projects: planning a local succulent business and Plant Journal App
+Current projects:
+* tech: Plant Journal App, UCSB Study App
+* personal: plant photo blog and reading blog
  
 Embarking on journey to run outdoors and rock climb more
 
-Catch me trying a new boba place 
+Catch me trying a new boba place
 
 # Let's get down to business
 
