@@ -23,7 +23,7 @@ Catch me trying a new boba place
 
 📫 Let's connect: 
 
-Email: vanessalgadoz@gmail.com or check out my website: TBA
+Email: vanessalgadoz@gmail.com or check out my website [here](https://Vanessa-Salgado.github.io)
 <!---
 ![Vanessa's github stats](https://github-readme-stats.vercel.app/api?username=Vanessa-Salgado&show_icons=true&count_private=true&include_all_commits&hide_rank=true&hide=stars&theme=calm) 
 
