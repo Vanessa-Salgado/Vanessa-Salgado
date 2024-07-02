@@ -1,20 +1,18 @@
-<h1 align="center"> Hi! I’m Vanessa Salgado(she/her)</h1>
+<h1 align="center"> Hi! I’m Vanessa Salgado</h1>
 
 
 # Who is she? 
 
 
 I’m interested in creating technology for environmental and social good. Let's make this world a better place!
-Currently pursuing a Masters in Environmental Data Science at Bren School of Environmental Science & Mangagement. 
- 
-I enjoy spending time with friends, being a mom of 3 (🐱-> Ollie + Panchita and 🐶->Bebs), reading, and rock climbing. 
+Recently graduated with a Master of Environmental Data Science at Bren School of Environmental Science & Mangagement. 
  
  
  # Currently Working on:
  
 Current projects:
-* tech: UCSB Study App, TA for Data Science 1, personal website 
-* personal: learning crochet, making succulent arrangements, reading novels, randome sports(rock climbing, )
+* tech: TA for Data Science 1, personal website 
+* personal: learning crochet, making succulent arrangements, reading novels, randome sports(rock climbing, running, etc)
 
 
 # Let's get down to business
